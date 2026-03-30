@@ -1,0 +1,1 @@
+# Sistem-per-menaxhimin-e-hoteleve
